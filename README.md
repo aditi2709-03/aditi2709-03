@@ -15,6 +15,6 @@
   
 - ⚡ Fun fact: Over 60 Billion Lego bricks are made each year which is enough to reach all the way to the moon, and half the way back to earth!
   
-- 📫 How to reach me: Connect with me @ **aditigrwl.27@gmail.com**  or  **www.linkedin.com/in/aditiagarwal2709**
+- 📫 How to reach me: Connect with me @ **aditiagarwal.2703@gmail.com**  or  **www.linkedin.com/in/aditiagarwal2709**
 
 
